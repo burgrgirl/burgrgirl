@@ -1,5 +1,6 @@
-୨୧‿‿‿୨<img src="https://caterpie.crd.co/assets/images/gallery08/1c76cbd1.gif?v=0a72a95d"/>୧‿‿‿୨୧
+୨୧‿‿‿୨୧‿‿‿୨୧
 <br>
-<img src="https://archives.bulbagarden.net/media/upload/a/a3/PCP517.png?20120705185335"/>
+<center>noctis <b>(๑•ᴗ•๑)</b></center>
 <br>
-୨୧‿‿‿୨<img src="https://caterpie.crd.co/assets/images/gallery08/1c76cbd1.gif?v=0a72a95d"/>୧‿‿‿୨୧
+carrd soon
+୨୧‿‿‿୨୧‿‿‿୨୧

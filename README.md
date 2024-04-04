@@ -2,6 +2,6 @@
 <br>
 <center>noctis <b>(๑•ᴗ•๑)</b></center>
 <br>
-carrd soon
+rentry linked
 <br>
 ୨୧‿‿‿୨୧‿‿‿୨୧
